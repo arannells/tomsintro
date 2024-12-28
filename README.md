@@ -1,4 +1,4 @@
-# tomsintro
+# introduction
 hiii!
 i go by kevin or whizzer but you can also call me tom if we're close!
 my prns are he/thou ,, im thirteen n infp.
